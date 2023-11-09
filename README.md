@@ -1,1 +1,1 @@
-Masters student at USW in Computer Science 
+Masters student at University of South Wales in Computer Science 
